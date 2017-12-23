@@ -1,1 +1,1 @@
-https://123.sogou.com/# gg
+https://zaixiangv.com# gg
